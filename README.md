@@ -1,0 +1,1 @@
+# goLoot_RUS
